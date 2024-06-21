@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-watch realtime korean bitcoin premium! [thirteenth.hongvyo.com](thirteenth.hongvyo.com)
+watch realtime korean bitcoin premium! [thirteenth.hongvyo.com](https://thirteenth.hongvyo.com/en/home)
 <!--
 **Hongvyo/Hongvyo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
